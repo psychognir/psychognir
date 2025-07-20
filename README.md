@@ -9,7 +9,7 @@
 ###
 
 <div align="center">
-  <img height="1000" src="https://cdn.discordapp.com/attachments/1324455301365108828/1396602283692658758/112_sin_titulo_20250720181811.png?ex=687eaebc&is=687d5d3c&hm=7374e92b4620668e002654a75c29c1aab673170ecc12a981f0d42b13a653922e&"  />
+  <img height="1000" src="https://cdn.discordapp.com/attachments/1324455301365108828/1396616537795985419/112_sin_titulo_20250720191453.png?ex=687ebc02&is=687d6a82&hm=07d953bca73359c6f5c969bebb936b3953eacd69b1f693ec4247840645b950ed&"  />
 </div>
 
 ###
