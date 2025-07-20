@@ -4,17 +4,13 @@
 
 ###
 
-<h6 align="center">Hey there, i'm Ring/Acidblue!!! i like bunnys and my bf, i have 16 years old ( ´∀｀ )b<br>all w2i, c+h in pony town!! don't be afraid to talk me!!!!! (*ゝω･*)</h6>
+<h5 align="center">hiiii, i want to have more friends.. I CAN BE UR FRIEND!!!????? ！！(゜ロ゜ノ)ノ<br>all things in pony town!! c+h, w2i don't be afraid to talk me hehe<br> ﾟ+.ﾟ(´▽`人)ﾟ+.ﾟ</h5>
 
 ###
 
 <div align="center">
-  <img height="250" src="https://cdn.discordapp.com/attachments/1324455301365108828/1396602312918564975/3628d650f943460ffbd42b92260aa69f.gif?ex=687eaec3&is=687d5d43&hm=32a660c0f17d93a837edac2a28fb6f43e0717a47d21340ccbfd6ab345cf90729&"  />
+  <img height="1000" src="https://cdn.discordapp.com/attachments/1324455301365108828/1396602283692658758/112_sin_titulo_20250720181811.png?ex=687eaebc&is=687d5d3c&hm=7374e92b4620668e002654a75c29c1aab673170ecc12a981f0d42b13a653922e&"  />
 </div>
-
-###
-
-<h6 align="center">follow me and let's talk together in my socials!!! hehe (*^▽^)/★*☆♪<br><br>Dislike:       ||         i like!!!:<br>- ???  ||   - my bf!!!!<br>- ???      ||       - ice creamm!!<br>- ???..   ||     - friends!!!</h6>
 
 ###
 
